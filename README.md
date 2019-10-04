@@ -1,1 +1,1 @@
-# Machinme-learning-code-assembled-for-SEO
+# Machine-learning-code-assembled-for-SEO
